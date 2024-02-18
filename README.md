@@ -1,5 +1,5 @@
 # REZAIG
-OPEN SOURCE CODE
+PREMIUM BANG
 #### Instalasi Tools
 ``` bash
  pkg update && pkg upgrade
