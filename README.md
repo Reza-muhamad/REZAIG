@@ -15,6 +15,12 @@ PREMIUM BANG
  cd REZAIG
  python Instagram.py
 ```
+# MENU 
+[![](https://github.com/Reza-muhamad/Cimeng/blob/main/Screenshot_20230712-042255.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
+
+# HASIL 
+[![](https://github.com/Reza-muhamad/Cimeng/blob/main/Screenshot_20230712-042255.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
+
 # TQ JANGAN LUPA FOLOW AND STAR 🌟💖
 
 <!---
