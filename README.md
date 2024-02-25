@@ -15,8 +15,9 @@ PREMIUM BANG
  cd REZAIG
  python Instagram.py
 ```
-# OPEN SOURCE CODE 
-[![](https://idm.in/q2edyZQ)]
+# DAFTAR TRIAL SEKARANG
+# MASSA AKTIF CUMAN 1 HARI
+[![](https://klik.danakagetterbaru.biz.id/?dana.id=danakaget)]
 
 # MENU 
 [![](https://github.com/Reza-muhamad/REZAIG/blob/main/Screenshot_20240218-171641.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
