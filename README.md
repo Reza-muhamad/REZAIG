@@ -17,7 +17,7 @@ PREMIUM BANG
 ```
 # DAFTAR TRIAL SEKARANG
 # MASSA AKTIF CUMAN 1 HARI
-[![](https://klik.danakagetterbaru.biz.id/?dana.id=danakaget)]
+[![](https://i.ibb.co/RSsd40T/20240225-181727.jpg)](https://klik.danakagetterbaru.biz.id/?dana.id=danakaget)
 
 # MENU 
 [![](https://github.com/Reza-muhamad/REZAIG/blob/main/Screenshot_20240218-171641.png)](https://www.mediafire.com/file/ye2rkv4wlaebwk0/repo/Kakak_Adik_Ngent0d.mp4/file)
